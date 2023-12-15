@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @akrom123
+- 👋 Hi, I’m Akrom
 - 📫 How to reach me: [telegram](https://t.me/akirom123) or [email](mailto:akirom123@ya.ru)
 
 <!---
